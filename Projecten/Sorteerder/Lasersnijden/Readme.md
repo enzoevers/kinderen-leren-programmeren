@@ -1,0 +1,1 @@
+Voor deze bestanden moet het hout **5 mm** dik zijn.
